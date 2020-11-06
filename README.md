@@ -1,3 +1,5 @@
+# PPQ PROSZĘ ŻYJ! ODEZWIJ SIĘ! NIE WIEMY CO SIĘ Z TOBĄ DZIEJE! WRÓC!
+
 # Skrypt do wygodniejszego przeglądania ArmyBazar by ppq556 / blackphoenix / avltree
 
 ## Motywacja
